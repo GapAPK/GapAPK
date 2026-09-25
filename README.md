@@ -35,3 +35,4 @@
 ⏰ [Скачать SRP](https://play.google.com/store/apps/details?id=com.joyjetgames.ragbollstickimanssanbdox "Google Play")
 
 <img width="1200" height="675" alt="Без названия308_20260819104648" src="https://github.com/user-attachments/assets/2d309338-ca56-4e83-a5d5-502568aee69b" />
+<hr>
